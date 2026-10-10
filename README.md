@@ -21,6 +21,3 @@
 • Career Goal: Machine Learning and Predictive Analytics for Google Maps & Transit Teams.
 • Dream Home Baseline: A peaceful life in Brunnen, Switzerland, with an Alps view and a baby kitten. 🇨🇭🐈
 "Consistency compounds over time. 1% daily improvement leads to absolute system mastery."
-
-
-
